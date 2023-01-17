@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Cassio002 
+## Bem-vindo(a) ao perfil do Cassio002 😎
 
  <div>
    <a href="https://github.com/Cassio002">
